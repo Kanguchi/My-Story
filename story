@@ -1,1 +1,1 @@
-Once upon a time a hare and a tortoise had a race. The hare wanted to win very badly so he rushed ahead.
+Once upon a time a hare and a tortoise had a race. The hare wanted to win very badly so he rushed ahead, and just to make fun of the tortoise, took a nap. The Tortoise went slow and steady and eventually caught up to the sleeping hare.
